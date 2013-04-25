@@ -1,0 +1,1 @@
+Palm satellite will be the first personal satellite built by the teamin Taiwan
